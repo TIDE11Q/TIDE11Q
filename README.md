@@ -1,4 +1,5 @@
-<img width="736" height="1104" alt="4d82d2f882a5ca3b70b6901a0ab78270-Photoroom" src="https://github.com/user-attachments/assets/76d8e354-e0a3-407a-a9f4-d7ca1d1a6076" />
+<img width="579" height="431" alt="614ed0bc780601fbd492d358c93f4875-Photoroom" src="https://github.com/user-attachments/assets/4fe85feb-d143-498d-8be0-984fcaddf2f8" />
+
 
 
 
