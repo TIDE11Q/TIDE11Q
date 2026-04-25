@@ -1,1 +1,2 @@
-<img width="960" height="1200" alt="b954554e5578277908491d3bf017c331-Photoroom" src="https://github.com/user-attachments/assets/7fa801c5-4044-4951-9d83-22470f5e69fe" />
+<img width="324" height="338" alt="7bb49cdc18f3a774f9fb636947ab2298-Photoroom" src="https://github.com/user-attachments/assets/8a2c7a6c-c0f2-48fc-a864-74e1b9eb2b1f" />
+
