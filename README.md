@@ -1,4 +1,1 @@
-<div dir="rtl">
-      ⊹     ⊹ this page is currently under development
-  </div>
-<img width="1080" height="1011" alt="Image" src="https://github.com/user-attachments/assets/08d29b0b-8974-4a67-bb19-4c4d32e786e7" />
+<img width="1200" height="2148" alt="0400d7a509a497c1444d8badbf4426cd" src="https://github.com/user-attachments/assets/0f88643f-4f59-41ba-8dfa-9547fbf06948" />
