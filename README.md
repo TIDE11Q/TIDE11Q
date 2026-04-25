@@ -1,5 +1,5 @@
 <p align="center">
-<img width="200" height="200" alt="3a6617bf62203185d46dd7afa24586ac-Photoroom" src="https://github.com/user-attachments/assets/1b2404d1-e583-4f91-b739-29c8bb515dd5" />
+<img width="235" height="210" alt="1b1dc8d7cbb9f416b249e636c065a475-Photoroom" src="https://github.com/user-attachments/assets/a23ff32d-ceb6-488b-982a-f268ab191a6c" />
 </p>
 
 
