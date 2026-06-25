@@ -1,5 +1,5 @@
 <p align="center">
-<img width="235" height="210" alt="1b1dc8d7cbb9f416b249e636c065a475-Photoroom" src="https://github.com/user-attachments/assets/a23ff32d-ceb6-488b-982a-f268ab191a6c" />
+<img width="735" height="689" alt="Bez_nazvania220_20260625202431" src="https://github.com/user-attachments/assets/9d345c31-a8b0-40ae-9697-c4dd6295de9b" />
   ˢᵐⁱˡᵉ ᶠᵒʳ ᵗʰᵉ ᶜᵃᵐᵉʳᵃ!
 </p>
 <p align="center">
