@@ -1,5 +1,5 @@
 <p align="center">
-<img width="135" height="185" alt="Bez_nazvania220_20260625202431" src="https://github.com/user-attachments/assets/9d345c31-a8b0-40ae-9697-c4dd6295de9b" />
+<img width="110" height="85" alt="Bez_nazvania220_20260625202431" src="https://github.com/user-attachments/assets/9d345c31-a8b0-40ae-9697-c4dd6295de9b" />
   ˢᵐⁱˡᵉ ᶠᵒʳ ᵗʰᵉ ᶜᵃᵐᵉʳᵃ!
 </p>
 <p align="center">
