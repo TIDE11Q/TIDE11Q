@@ -1,6 +1,6 @@
 <p align="center">
-<img width="210" height="185" alt="Bez_nazvania220_20260627181805" src="https://github.com/user-attachments/assets/affb88bc-8456-4791-8712-ef4bbfce8c23" />
-  ˢᵐⁱˡᵉ ᶠᵒʳ ᵗʰᵉ ᶜᵃᵐᵉʳᵃ!
+<img width="600" height="600" alt="51e0a657c07a0c52db0b09979bfe90dd-Photoroom" src="https://github.com/user-attachments/assets/f86f0535-ec1b-4faf-92fe-056c342378eb" />
+
 </p>
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31z7w7i6vjmzylvb7dsyqu2tzkkm&redirect=true">
