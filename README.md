@@ -1,5 +1,5 @@
 <p align="center">
- <img width="191" height="345" alt="ac1b207b-40a9-46ae-ba89-8ee1edeba8ef" src="https://github.com/user-attachments/assets/f7d4d604-9df1-4104-b2ca-988055b7f026" />
+ <img width="145" height="345" alt="ac1b207b-40a9-46ae-ba89-8ee1edeba8ef" src="https://github.com/user-attachments/assets/f7d4d604-9df1-4104-b2ca-988055b7f026" />
 <p align="center">
  ᶜʰᶦᵏᵉⁿ ᵐᶜⁿᵘᵍᵍᵉᵗˢ ᵒʳ ᶜʰᵉˢᵉᵇᵘʳᵍᵉ 
 
