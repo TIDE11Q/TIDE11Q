@@ -16,7 +16,7 @@
 
 ⤷ don't drag me into dramas please!
 
-⤷ if you're my friend and i made you feel uncomfy let me know and i'll correct my behavior 
+⤷ if i made you feel uncomfy let me know and i'll correct my behavior 
 
 ⤷ DNI: basic dni list, people who support something from basic dni, ragebaiters, tutorial and copy skins
 
