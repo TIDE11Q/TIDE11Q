@@ -1,7 +1,12 @@
 <p align="center">
  ㅤㅤㅤㅤㅤ<img width="803" height="327" alt="d5ebfedf-5598-4073-a32f-94e20814653f" src="https://github.com/user-attachments/assets/a29f32ea-1747-450d-96c4-ea61f5652dc3" />
 <p align="center">
-  ✶
+   <div align="center">
+
+![](https://komarev.com/ghpvc/?username=TIDE11Q&label=✶&color=860e26)
+
+</div>
+
  <p align="center">
 <img width="803" height="318" alt="d5ebfedf-5598-4073-a32f-94e20814653f2" src="https://github.com/user-attachments/assets/bf9295bb-0491-4849-81f0-0ad9410a2f60" />
 
