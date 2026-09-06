@@ -17,7 +17,7 @@
 
    ⤷ fandoms im into: honkai star rail, good omens, genshin, link click, arknights: endfield, steven universe, a little bit zzz and others
 
-ᵎ⤷ minors under 15 iwec
+ᵎ⤷ under 15 iwec
 
 ⤷ don't drag me into dramas please!
 
