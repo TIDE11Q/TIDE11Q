@@ -64,4 +64,14 @@ credits: ineb_sr . sunstrifes . phailuvs . M_MIN_Tt . gothcowboyz . chaoticblues
 
 
 
-$\color{#ff0000}{\text{kay s gay}}$
+$\color{#ff0000}{\text{kay is gay}}$
+
+
+$\Huge{
+\textsf{
+{\color[rgb]{1,0,0}I}
+{\color[rgb]{1,0.5,0}M}
+{\color[rgb]{1,1,0}G}
+{\color[rgb]{0,1,0}A}
+{\color[rgb]{0,0.5,1}Y}
+}}$ - kay
