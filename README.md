@@ -1,5 +1,5 @@
 <p align="center">
-<a href="[https://decomytree.io/t/aCM6iu?invite=aCM6iu">DECORATE MY TREE!!!</a> 
+<a href="https://decomytree.io/t/aCM6iu?invite=aCM6iu"> DECORATE MY TREE!!!</a> 
 
 <p align="center">
   <img align="middle" src="https://readme-typing-svg.demolab.com/?font=Georgia&size=12&pause=1000&color=d2b396&center=true&vcenter=true&width=95&height=22&lines=BDAY-GIFT-" />
