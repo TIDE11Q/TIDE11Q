@@ -1,4 +1,8 @@
 <p align="center">
+<img width="700" height="558" alt="623ec9d554d2dd2cc58d514cde3fd57a" src="https://github.com/user-attachments/assets/197bd997-71ba-4463-9443-bdce05dd9923" />
+
+
+<p align="center">
 <a href="https://decomytree.io/t/aCM6iu?invite=aCM6iu"> DECORATE MY TREE!!!</a> 
 
 <p align="center">
