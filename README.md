@@ -1,9 +1,13 @@
 <p align="center">
-<img width="508" height="250" alt="659531e1b39ec2b8fdfe450e58f19468" src="https://github.com/user-attachments/assets/17d2e5e8-1f83-454e-9524-c0c8c91479fc" />
+<img width="508" height="250" alt="659531e1b39ec2b8fdfe450e58f19468" src="https://github.com/user-attachments/assets/497ae63d-8346-467f-bcd6-0200a359e9b9" />
 
 
 <p align="center">
 <a href="https://decomytree.io/t/aCM6iu?invite=aCM6iu"> DECORATE MY TREE!!!</a> 
+
+<p align="center">
+<img width="384" height="216" alt="2dcc16d0e186f2091afc65ad1be6028b" src="https://github.com/user-attachments/assets/8fa8ff5e-0326-42ca-a46f-34b7ec4f9344" />
+
 
 <p align="center">
   <img align="middle" src="https://readme-typing-svg.demolab.com/?font=Georgia&size=12&pause=1000&color=d2b396&center=true&vcenter=true&width=95&height=22&lines=BDAY-GIFT-" />
